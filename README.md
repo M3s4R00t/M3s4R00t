@@ -1,5 +1,1 @@
-- Hi, I’m M3s4R00t
-- currently most interested in my 3d printer
-- Autodesk 123D for CAD
-- I have been Machining for the past 18 years.
 - Email me at cztech@pm.me
